@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **rlearningvidu@gmail.com**
 
-- ⚡ Fun fact **I think II is a Cup of Coffe.**
+- ⚡ Fun fact **I think It is a Cup of Coffe.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
